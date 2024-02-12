@@ -14,4 +14,4 @@
 
 👉 [Join our Discord community!](https://social.vishwa.ai/join/discord)
 
-🐦 Follow the latest from xpuls.ai team on Twitter [@vishwa_ai](https://twitter.com/vishwa_ai)
+🐦 Follow the latest from vishwa.ai team on Twitter [@vishwa_ai](https://twitter.com/vishwa_ai)
